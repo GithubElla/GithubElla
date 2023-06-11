@@ -1,6 +1,6 @@
 ### Hi there 👋, i'm GithubElla
 #### Web Developer
-![Web Developer](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+![image](https://github.com/GithubElla/GithubElla/assets/136187280/34e08030-1cd5-412f-857b-5531f707af2e)
 
 I am a professional web site developer and designer working on elementor and wordpress for three years. If you work with me then I will try to submit your work
 
