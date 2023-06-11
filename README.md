@@ -4,7 +4,7 @@
 
 I am a professional web site developer and designer working on elementor and wordpress for three years. If you work with me then I will try to submit your work
 
-Skills: Business Logo / Graphics Design / Image Editing / Video Editing / Logo Design / Website Developer / Website desig /Website design / Social Media App / All Writing & Translation Services / All Design Services / All Design Marketing Services / All Video, Photo & Image Service / All Business Services / All Music & Audio Services / All Social Media Servicesn
+Skills: Business Logo / Graphics Design / Image Editing / Video Editing / Logo Design / Website Developer / Website desig /Website design / Social Media App / All Writing & Translation Services / All Design Services / All Design Marketing Services / All Video, Photo & Image Service / All Business Services / All Music & Audio Services / All Social Media Service.
 
 - 🔭 I’m currently working on Youtube 
 - 🌱 I’m currently learning Video editing 
