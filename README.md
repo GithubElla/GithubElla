@@ -28,4 +28,4 @@ Skills: Business Logo / Graphics Design / Image Editing / Video Editing / Logo D
 
 ![GitHub streak stats](https://streak-stats.demolab.com/?user=https://github.com/GithubElla)  
 
-![Profile views](https://gpvc.arturio.dev/https://github.com/GithubElla)  
+
